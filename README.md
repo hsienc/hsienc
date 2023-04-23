@@ -2,4 +2,4 @@ Hi, this is Eric Hsienchen Chu. I am a sophomore pursuing triple majors in Econo
 
 I currently work as Research Assistant to the *[CALL-ECL Project](https://call-ecl.wceruw.org/)* and is part of its SNA Working Group at Wisconsin Center for Education Research (WCER).
 
-Website: [erichsienchenchu.com](erichsienchenchu.com)
+Website: [erichsienchenchu.com](https://www.erichsienchenchu.com/home)
