@@ -1,5 +1,3 @@
-Hi, this is Eric Hsienchen Chu. I am a undergraduate student at [UW-Madison Economics](https://econ.wisc.edu/). I serve as Editor-in-Chief at *[Equilibrium: The Undergraduate Journal of Economics](https://equilibriumecon.wisc.edu/)*. While I am still exploring different possibilities, my current research interests are International Trade and Industrial Organization. 
-
-I currently work as Research Assistant for the *[CALL-ECL Project](https://call-ecl.wceruw.org/)* and is part of its SNA Working Group at Wisconsin Center for Education Research (WCER).
+Hi, this is Eric Hsienchen Chu. I am a junior undergraduate student majoring in Economics and Mathematics at the University of Wisconsin–Madison. While I am still exploring different possibilities, my current research interests are International Trade and Industrial Organization. Outside of school, I ride with [Team Brazen Dropouts](https://www.brazendropouts.org/).
 
 Website: [erichsienchenchu.com](https://www.erichsienchenchu.com/home)
